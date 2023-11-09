@@ -1,4 +1,4 @@
-# Personal Habits
+# personal-habits
 
 ## Spiritual and Personal Habits (with timings)
 
