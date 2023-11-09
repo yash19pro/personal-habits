@@ -6,8 +6,8 @@
 - [7:45 - 9:30] Workout (Plan mentioned below)
 - [9:30 - 10:00] Fresh and Up; Doing all the Aartis; Completing the breakfast
 	1. [Sri Narasimha Kavacha Mantra](https://iskcondesiretree.com/page/sri-narasimha-kavacha-mantra)
-    	2. [Brahma Samhita](https://iskcondesiretree.com/page/brahma-samhita)
-    	3. [Sri Saci-Sutashtakam](https://iskcondesiretree.com/page/sri-sacisuta-astakam)
+    2. [Brahma Samhita](https://iskcondesiretree.com/page/brahma-samhita)
+    3. [Sri Saci-Sutashtakam](https://iskcondesiretree.com/page/sri-sacisuta-astakam)
 - [10:15 - 11:15] Listening to a lecture
 - [12:00 - 20:30] Office work (very religiously and diligently)
 - [20:30 - 21:00] Fresh and Up; Completing the dinner
@@ -65,7 +65,7 @@
 - Warm-up: 5-10 minutes of light cardio.
 - High-Intensity Interval Training (HIIT): Perform exercises like high knees, mountain climbers, and jump squats in short bursts with brief rests in between. 3-4 sets of 20-30 seconds per exercise.
 - Cardio: 30-45 minutes.
-- Cool down and stretching: 10-15 minutes.
+- Cool down and stretch: 10-15 minutes.
 
 #### Sunday: Rest Day
 - Take a well-deserved rest to allow your body to recover and prepare for the upcoming week.
